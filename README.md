@@ -1,0 +1,1 @@
+# Uzdevumu-p-rvaldnieks
